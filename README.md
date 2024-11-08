@@ -3,9 +3,13 @@
 
 MCK và loạt hình ảnh nhạy cảm, gây tranh cãi trong quá khứ
   
-Yến Thanh
-Thứ tư, ngày 06/11/2024 07:00 AM (GMT+7)
-Những hình ảnh bị cho là phản cảm của MCK đang được khán giả chia sẻ trở lại trên mạng xã hội.
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴 https://tinyurl.com/3namhbm4
 
 Dân Việt trên  
 Nam rapper bất ngờ gục ngã ngay trên sân khấu khiến khán giả bàng hoàng
